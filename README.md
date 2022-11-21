@@ -1,3 +1,6 @@
+![image](https://user-images.githubusercontent.com/45473846/203086408-bf74de1e-8d59-48b9-ae29-7dd775fdf9a5.png)
+
+
 # glossary
 glossary 
 
